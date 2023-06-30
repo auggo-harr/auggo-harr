@@ -2,7 +2,7 @@
 
 **they / them**
 
-I have been pursuing different forms of creative work for around 3 years now. As I begin to get back into the groove of creating things, I will begin to post more of my projects on here.
+I have been pursuing different forms of creative work for around 3 years now. As I begin to get back into the groove of creating things, I will start to post more of my projects on here.
 
 ---
 
