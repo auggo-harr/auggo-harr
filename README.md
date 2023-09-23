@@ -8,4 +8,4 @@ Hiya! I'm August. I have been pursuing different forms of creative work for arou
 
 Currently studying in IT.
 
-**My website (currently under development):** https://augharr.github.io/
+**My website (currently under development):** https://auggo-harr.github.io/
