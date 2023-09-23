@@ -1,6 +1,6 @@
 ### Hiya! I'm August. 🪴
 
-**they / them**
+**she / they**
 
 Hiya! I'm August. I have been pursuing different forms of creative work for around 3 years now. Now, as I begin to get back into the groove of web design, I'll post my work on here.
 
@@ -8,4 +8,4 @@ Hiya! I'm August. I have been pursuing different forms of creative work for arou
 
 Currently studying in IT.
 
-**My website:** https://augharr.github.io/
+**My website (currently under development):** https://augharr.github.io/
